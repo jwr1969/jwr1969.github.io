@@ -1,1 +1,0 @@
-# jwr1969.github.io
